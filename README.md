@@ -9,3 +9,4 @@ I want to learn from this class how do analysis within python and r to further m
 I am looking foward to learning a lot!
 As some hobbies I love watching sports, especially baseball and football, playing tennis, going to the gym, and baking. 
 I also work at Pace Univeristy as a tour guide!
+I can't wait to learn!
